@@ -3,7 +3,7 @@
 
 ## Market Overview
 
-The global iron and steel casting market was valued at **USD 149.4 billion in 2022** and is projected to reach **USD 218.6 billion by 2031**, growing at a **CAGR of 4.3%** from 2023 to 2031. Growth is driven by increasing demand across key industries such as automotive, construction, and heavy machinery, alongside advancements in casting technologies and infrastructure development worldwide.
+The global [iron and steel casting market](https://www.transparencymarketresearch.com/iron-steel-casting-market.html) was valued at **USD 149.4 billion in 2022** and is projected to reach **USD 218.6 billion by 2031**, growing at a **CAGR of 4.3%** from 2023 to 2031. Growth is driven by increasing demand across key industries such as automotive, construction, and heavy machinery, alongside advancements in casting technologies and infrastructure development worldwide.
 
 👉 [Get a Sample Report](https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=20456)
 
